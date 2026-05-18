@@ -1,4 +1,4 @@
-#  
+#  VIP brainrot evolution script es el mejor brainrot evolution script con actualización automática y indetectable. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
